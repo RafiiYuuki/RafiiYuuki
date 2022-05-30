@@ -1,5 +1,7 @@
-### Hi there 👋
+### Ohaa Mina san, I'm Rafii 👋
 
+### ⚫ Glad to see you here!
+- ⚡ Fun fact: I'm a dopelgangger 😆
 <!--
 **RafiiYuuki/RafiiYuuki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
